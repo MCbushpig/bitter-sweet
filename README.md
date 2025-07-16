@@ -1,6 +1,7 @@
+<img width="1530" height="999" alt="Untitled1407_20250716103451" src="https://github.com/user-attachments/assets/0e53eff8-d358-4a48-a5e4-f6c52f767009" />
 
-![Untitled183_0000-00-07_20241215095127](https://github.com/user-attachments/assets/ff873ed9-04d8-4d2b-bfa1-e4cce0b7bc8c)
-![Untitled350_20241216215722](https://github.com/user-attachments/assets/a436ddd6-25bd-4f01-8892-48e9ca4462f7)
+⠀⠀ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤzim       ͜  ‿ ͜  ༉ ⠀ Karter☆⌒(ゝ。∂) ⠀⠀⠀⠀⠀⠀⠀⠀it ⠀ 𓏵   he    rot
 
+ ⠀⠀⠀⠀ ͜mspec mlm⠀ ⠀ ⠀ ⠀ ᛝ𓈒⠀⠀tmascgirlflux ⠀ agndr ⠀ ⠀𓎢𓎟𓎡 ⠀profic && bigots dni
 
-![Untitled183_0000-00-07_20241215095608](https://github.com/user-attachments/assets/13e78197-8338-4710-a71c-1685a50d9f66)
+<img width="400" height="64" alt="Untitled1305_20250716104121" src="https://github.com/user-attachments/assets/946db25e-2ec9-4759-8a05-2f2e66f99e1f" />
